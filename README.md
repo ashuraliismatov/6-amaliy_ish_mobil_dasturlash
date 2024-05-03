@@ -1,0 +1,1 @@
+# 6-amaliy_ish_mobil_dasturlash
